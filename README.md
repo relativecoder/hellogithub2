@@ -5,4 +5,5 @@ Organs are meat.
 We think with our brain.
 Our thoughts come from thinking meat inside a bone cage.
 Open your head.
+Let your mind go.
 Free yourself.
